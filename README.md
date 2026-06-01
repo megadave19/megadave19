@@ -1,5 +1,5 @@
 
-I'm currently working on sovereign B2B data-sharing solutions as Product Owner at sovity GmbH, integrating AI for smarter ecosystems.<br>I'm looking to collaborate on AI-driven product projects in SaaS or fintech.<br>I'm looking for help with advancing my AI agent development skills.<br>I'm currently learning AI PM strategies and agentic workflows.<br>4 years enterprise SaaS sales & business development<br>experience in North America and Europe; driving revenue and customer acquisition.
+I'm currently working on sovereign B2B data-sharing solutions as Product Owner at sovity GmbH<br>I'm looking to collaborate on AI-driven product projects in SaaS or fintech.<br>I'm looking for help with advancing my AI agent development skills.<br>I'm currently learning AI PM strategies and agentic workflows.<br>4 years enterprise SaaS sales & business development<br>experience in North America and Europe; driving revenue and customer acquisition.
 
 
 ## 🌐 Socials:
